@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **tijinthomas002@gmail.com**
 
-- ⚡ Fun fact **I'm funny😉,I think so🙈**
+- ⚡ Fun fact **Why there has to be a fun fact**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
